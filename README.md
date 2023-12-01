@@ -13,8 +13,11 @@ Dí cómo será ese paso
 Algunas webs permitidas para realizar la acción:
 
 http://inspireeconomist.com
+
 http://dailyquicknews.com
+
 http://urbanprodenver.com
+
 http://dailycitylive.com
 
 Da un ejemplo Y repite
